@@ -1,7 +1,7 @@
 - 👋 seja bem vindo ao meu perfil🇧🇷
 - 👀 futebol ⚽
 - 🌱 jogar mais futebol ⚽
-- 💞️ em treinar
+- 💞️ treinar
 - 📫 manda msg
 - 😄 Matheus
 - ⚡ jogo truco
